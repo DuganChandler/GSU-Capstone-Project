@@ -7,7 +7,13 @@ Now this is a story all about how my life got flip-turned upside-down,
 Add anything I wantt
 
 This is eric new txt hello
+
+This is Christian's new line!!!!
+
+
+This is eric new txt hello
 hello this is the new txt  file made!!!
 
 This is eric new txt hello
+
 
